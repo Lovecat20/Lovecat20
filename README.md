@@ -7,7 +7,7 @@ https://twitter.com/Kate_Baek_
 https://www.instagram.com/kate_baek_/
 
 - 😄 Pronouns: she
-- ⚡ Fun fact: I am Korean , but I lived in shanghai for while , 
+- ⚡ Fun fact: I am Korean , but I lived in shanghai for while , and except Instagram ,I've just joined SNS platform .hahahaha
 
 <!---
 Lovecat20/Lovecat20 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
